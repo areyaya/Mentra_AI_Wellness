@@ -1,1 +1,1 @@
-# Mentra_AI_Wellness
+# Zippy_AI_Wellness
